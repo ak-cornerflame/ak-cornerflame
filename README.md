@@ -13,10 +13,16 @@ i behold the visage of multiple shrinks for unknown reasons</p>
 
 dni if
 
-<p>basic criteria (racist, harmful paraphilic, "proship"/"comship"/"darkship", queerphobic, ableist, sanist, colorist, fascist, you name it)<br>
+<p>basic criteria (racist, harmful paraphilic, "proship"/"comship"/"darkship" (at the end of the day they're used synonymously), queerphobic, ableist, sanist, colorist, fascist, you name it)<br>
 one of those people who feign mental illness because quirky<br>
 not partial to what exact affliction it is (i'll ignore you at best all the same) but if you're an "irl" or anything adjacent i'd looove if you stay the fuck away<br>
 tacking on "performatively woke" as a whole with this. trust that i can tell the difference and would actually be delighted to exchange experiences with the right kind of person thanks</p>
+
+byi
+
+<p>the human experience is nuanced and so are my views on it. if we disagree heavily on something it's best to drop it, speaking from experience<br>
+i am multiply nd, take that as you will<br>
+a lot of the time i won't respond to pms, it's not personal</p>
 
 interests/fun facts
 
