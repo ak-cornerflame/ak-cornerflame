@@ -1,4 +1,12 @@
 <div align = center>
+
+![I](https://img.shields.io/badge/I-2E070C?style=for-the-badge&logo=&logoColor=white)
+![who](https://img.shields.io/badge/who-4d0f0e?style=for-the-badge&logo=&logoColor=white)
+![bear](https://img.shields.io/badge/bear-771a12?style=for-the-badge&logo=&logoColor=white)
+![the](https://img.shields.io/badge/the-962214?style=for-the-badge&logo=&logoColor=white)
+![world](https://img.shields.io/badge/world-b52a16?style=for-the-badge&logo=&logoColor=white)
+![must](https://img.shields.io/badge/must-df351a?style=for-the-badge&logo=&logoColor=white)
+![burn](https://img.shields.io/badge/burn-FE3D1C?style=for-the-badge&logo=&logoColor=white)
   
 ![gay](https://github.com/user-attachments/assets/0075378e-a316-491e-b18e-198f60e82149)
 
