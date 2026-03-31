@@ -2,7 +2,7 @@
   
 ![gay](https://github.com/user-attachments/assets/0075378e-a316-491e-b18e-198f60e82149)
 
-![](https://view-counter.tobyhagan.com/?user={ak-cornerflame}&base=3c3c3c&text=c4a93c&accent=2099fc&icon=true)
+![](https://komarev.com/ghpvc/?username=ak-cornerflame&label=eternal+recurrence)
 
 basic info
 
