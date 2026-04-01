@@ -21,7 +21,7 @@ i behold the visage of multiple shrinks for unknown reasons</p>
 
 dni if
 
-<p>basic criteria (racist, harmful paraphilic, "proship"/"comship"/"darkship" (at the end of the day they're used synonymously), queerphobic, ableist, sanist, colorist, fascist, you name it)<br>
+<p>basic criteria (racist, harmful paraphilic, "proship"/"comship"/"darkship" (at the end of the day they're used synonymously), queerphobic, ableist, sanist, colorist, fascist, puritanical, you name it)<br>
 one of those people who feign mental illness because quirky<br>
 not partial to what exact affliction it is (i'll ignore you at best all the same) but if you're an "irl" or anything adjacent i'd looove if you stay the fuck away<br>
 tacking on "performatively woke" as a whole with this. trust that i can tell the difference and would actually be delighted to exchange experiences with the right kind of person thanks</p>
