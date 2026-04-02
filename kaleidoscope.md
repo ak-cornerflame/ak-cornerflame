@@ -1,5 +1,7 @@
 <div align = center>
 
+<p>"kaleidoscope"</p>
+
 <img width="596" height="692" alt="IMG_9058" src="https://github.com/user-attachments/assets/322c18ea-f2a9-4e0a-bf40-c614b4d55f53" />
 
 <p>the kaleidoscope inside my mind<br>
