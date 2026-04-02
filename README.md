@@ -47,4 +47,4 @@ if you came from pt youll probably see me cosplaying ashveil or anaxa (haha gott
 
 footnote
 
-i'll post things in this repository sometimes
+i'll post things in this [repository](https://github.com/ak-cornerflame/ak-cornerflame/tree/main) sometimes
