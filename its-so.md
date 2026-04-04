@@ -30,4 +30,4 @@ oh my scars</p>
 <p>oh i'm sure<br>
 oh i'm pure<br>
 oh, it's so<br>
-it's truly so</p>
+it's truly so!</p>
