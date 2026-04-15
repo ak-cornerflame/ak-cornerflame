@@ -43,7 +43,7 @@ home to the "zandik is a zandar fragment" theory, "phantasmoon games winners and
 
 <p>i can pronounce hks<br>
 if you've seen me before no you haven't<br>
-if you came from pt youll probably see me cosplaying ashveil or anaxa (haha gottem) or something</p>
+if you came from pt youll probably see me cosplaying zandar or anaxa (haha gottem) or something</p>
 
 footnote
 
